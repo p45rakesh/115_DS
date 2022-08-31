@@ -1,0 +1,7 @@
+  NAME:PALEM RAKESH REDDY
+  
+  
+  USN:1CR19CS115
+  
+  
+  ROOM NO:504
